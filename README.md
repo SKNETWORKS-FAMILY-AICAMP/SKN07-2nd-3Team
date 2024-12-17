@@ -55,6 +55,13 @@
 ---
 
 ## 데이터 전처리
+![download](https://github.com/user-attachments/assets/eaa7f50d-67a0-44b3-b939-8217b35b3b0e)
+
+![download](https://github.com/user-attachments/assets/2d98b538-71d0-4830-9446-846dd94efffc)
+
+![download](https://github.com/user-attachments/assets/35e7cadc-83c2-4d82-a79a-a378ce027b16)
+
+![download](https://github.com/user-attachments/assets/e1c3d010-33ad-4a46-9980-d08e8969fd4a)
 
 ---
 
